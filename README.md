@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Currently learn and practicing java 🍵 <br />
+reach me on instagram : @arief_kres <br />
+
